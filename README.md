@@ -1,1 +1,1 @@
-# Yamal-coin-site-
+# Yamalcoinsite-
